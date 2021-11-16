@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Boyau
+- 👀 I’m interested in keyboards
+- 🌱 I’m currently learning cad
